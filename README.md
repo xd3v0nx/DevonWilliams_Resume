@@ -1,6 +1,6 @@
 # D. Williams
 
-- 📞 (470) 503-9470
+- 📞 *** *** ****
 - 📧 itsdwilliams@outlook.com
 - 📍 Atlanta, GA
 
